@@ -8,3 +8,9 @@ I LOVE HUG YOU VERY I AM 10 old girl BUT I CAN HUG YOU IF YOU UPSET AND HURY DON
 
 
 ![c6059769fbaee711214e53992db47a8b](https://github.com/user-attachments/assets/44578462-86e3-4ff0-8eac-e62f8d45630f)
+I LOVE pjsk 
+
+![56c7681cb2777fe31196a0da4f22d3a3](https://github.com/user-attachments/assets/3abc3121-2670-46f6-93c3-418473d0e1e2)
+
+![68747470733a2f2f692e706f7374696d672e63632f62765a5371794d562f556e7469746c65643237382d32303234303831343231303634382e706e67](https://github.com/user-attachments/assets/0587a235-98bc-4534-b81b-214aaeb6f6b8)
+
