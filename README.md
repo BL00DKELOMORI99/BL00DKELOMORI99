@@ -4,8 +4,9 @@
 HEY YOU YAH YOU I CAN ASK YOU BUT I AM REAL BLACKSTAR DONT BITE ME PLS
 OR BLOCK ME THAT RUD  E >:(
 
+![a098909c1198519330ae23f4da21c3e2](https://github.com/user-attachments/assets/c21820fa-b409-40e4-9310-66de2a420ab3)
 
-![1a7b2d27da8206999e330919a032edfc](https://github.com/user-attachments/assets/6bbe372b-8f50-430e-bd47-aa958e027b49)
+
 
 sleep lf you ask me the answer l will happy to answer A&Q beacuse l love answer
 
