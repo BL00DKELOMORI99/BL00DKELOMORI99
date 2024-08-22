@@ -1,4 +1,10 @@
 
+![359552771-c4d61e05-e6f0-46e5-92e4-87feb03c8599](https://github.com/user-attachments/assets/f3f25dc4-3058-479d-bd58-377639c63e16)
+𝐂𝐚𝐥𝐥 𝐦𝐞 "kel or sunny or blackstar" 𝐨𝐫 𝐀𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐲𝐨𝐮'𝐝 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞!
+
+
+
+ 
 ![f0d2127cb7395aecd0be5dfd4e071b4e](https://github.com/user-attachments/assets/fec89f24-4d88-4ae7-b38b-3469b1545893)
 
 HEY YOU YAH YOU I CAN ASK YOU BUT I AM REAL BLACKSTAR DONT BITE ME PLS
@@ -29,3 +35,5 @@ afk/sleep lf you ask me the answer l will happy to answer A&Q beacuse l love ans
 
 
 ![2a8f9f7900830b03f7a253cbf57e6cef](https://github.com/user-attachments/assets/37365a45-9dbb-4afe-a370-970334062920)
+![359552771-c4d61e05-e6f0-46e5-92e4-87feb03c8599](https://github.com/user-attachments/assets/fef4a6cd-38c5-4c07-876b-aee0986b0739)
+
