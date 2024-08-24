@@ -1,6 +1,6 @@
-
 ![2a8f9f7900830b03f7a253cbf57e6cef](https://github.com/user-attachments/assets/37365a45-9dbb-4afe-a370-970334062920)
 ![359552771-c4d61e05-e6f0-46e5-92e4-87feb03c8599](https://github.com/user-attachments/assets/fef4a6cd-38c5-4c07-876b-aee0986b0739)
+
 
 hello l am blackstar you call me kelful or sunny from omori l use call him kelful beacuse is funny and cringe nickname
 watch scott pilgrim ever know nega scott is dic-
