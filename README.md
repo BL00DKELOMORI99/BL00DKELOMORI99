@@ -1,8 +1,8 @@
+![0cba9b7c7c793f6d73724b8d42db99bc](https://github.com/user-attachments/assets/b518c4ef-8ea9-49ba-8a3e-1077ece5c1ee)
+![362007511-637c570e-b39d-4a67-a32b-0cd7d66e9b59](https://github.com/user-attachments/assets/76f2d06b-7106-4d00-bfeb-04512968dda0)
 
-!![0cba9b7c7c793f6d73724b8d42db99bc](https://github.com/user-attachments/assets/b518c4ef-8ea9-49ba-8a3e-1077ece5c1ee)
 
 
-![d76e4f42da6e5bdcedea1fa7ca1460f3](https://github.com/user-attachments/assets/a42229a8-d67d-481d-89a2-3f7e5ca4f655)
 
 
 𝐂𝐚𝐥𝐥 𝐦𝐞 "kelful or sunny blackstar" 𝐨𝐫 𝐀𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐲𝐨𝐮'𝐝 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞!
