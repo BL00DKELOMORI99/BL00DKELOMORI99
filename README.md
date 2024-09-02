@@ -1,21 +1,7 @@
 ![361165251-e727d572-5b74-4661-956e-b76de7810af6](https://github.com/user-attachments/assets/818add98-937c-49c2-8865-17dda536911f)
-
-![20b7acd51adfee440b079b49a4844e1b](https://github.com/user-attachments/assets/d6d31561-40a5-4895-b3a5-c5a77b1f25ef)
-
-SOUL SOUL SOUL SOUL SOUL I LOVE YOU I LOVE SOUL FROM SOUL EATER I LOVE HIM
-
-![3b1dbf41364fca7f1d6c730789756aab](https://github.com/user-attachments/assets/26aff8b1-a07e-4354-bb61-b322bbbafebb)
-
-
-
 ![362462559-b518c4ef-8ea9-49ba-8a3e-1077ece5c1ee](https://github.com/user-attachments/assets/b325ea23-f5f8-4bf6-a773-80b83d40694d)
 
-
 ![362007511-637c570e-b39d-4a67-a32b-0cd7d66e9b59](https://github.com/user-attachments/assets/76f2d06b-7106-4d00-bfeb-04512968dda0)
-
-
-
-
 
 𝐂𝐚𝐥𝐥 𝐦𝐞 "kelful or sunny blackstar" 𝐨𝐫 𝐀𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐲𝐨𝐮'𝐝 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞!
 ![cedd9b29101551b23163dfb16dfa3feb](https://github.com/user-attachments/assets/4e8fab11-4b48-4169-ad68-634fa6899e86)
