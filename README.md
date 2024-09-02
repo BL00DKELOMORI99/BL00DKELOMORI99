@@ -1,4 +1,13 @@
 ![361165251-e727d572-5b74-4661-956e-b76de7810af6](https://github.com/user-attachments/assets/818add98-937c-49c2-8865-17dda536911f)
+
+![20b7acd51adfee440b079b49a4844e1b](https://github.com/user-attachments/assets/d6d31561-40a5-4895-b3a5-c5a77b1f25ef)
+
+SOUL SOUL SOUL SOUL SOUL I LOVE YOU I LOVE SOUL FROM SOUL EATER I LOVE HIM
+
+![3b1dbf41364fca7f1d6c730789756aab](https://github.com/user-attachments/assets/26aff8b1-a07e-4354-bb61-b322bbbafebb)
+
+
+
 ![362462559-b518c4ef-8ea9-49ba-8a3e-1077ece5c1ee](https://github.com/user-attachments/assets/b325ea23-f5f8-4bf6-a773-80b83d40694d)
 
 
