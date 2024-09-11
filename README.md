@@ -24,7 +24,7 @@ i like denji much everyone use call me blackstar or kel
 
 AGE: 10-11
 
-![1994651c67c41f34852583b1503af1d8](https://github.com/user-attachments/assets/89c2a135-b5fb-405d-9e1e-1c9269597e12
+![1994651c67c41f34852583b1503af1d8](https://github.com/user-attachments/assets/27e1b739-e13f-4edc-b79f-581ab33c594e)
 
 
 No rude or means to me i am kind and nice no being bad
@@ -60,3 +60,5 @@ t
 ‘
 ₎
 ა
+
+![1b6fefcd55b169af06f2a3d69b0c71b0](https://github.com/user-attachments/assets/44843c48-15ee-4fcf-aec6-41f067a73cfa)
