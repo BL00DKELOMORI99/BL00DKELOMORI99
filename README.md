@@ -1,3 +1,31 @@
+╭
+─
+─
+─
+─
+─
+─
+ 
+·
+ 
+·
+ 
+୨
+୧
+ 
+·
+ 
+·
+ 
+─
+─
+─
+─
+─
+─
+╮
+
+
 
 ![510cd15e15a22029cc86196a32418b0f](https://github.com/user-attachments/assets/f238685f-a809-47fe-9534-a7f8178db009)
 
@@ -18,17 +46,18 @@ i like denji much everyone use call me blackstar or kel
 ─
 ─
 ─
+ 
 ·
+ 
 ·
+ 
 ୨
-
-![8b41d3e93ab27772436386bc5d3d29d7](https://github.com/user-attachments/assets/c5b23b75-120f-48aa-9f18-2cf20c59ea00)
-
-
-
 ୧
+ 
 ·
+ 
 ·
+ 
 ─
 ─
 ─
@@ -39,33 +68,7 @@ i like denji much everyone use call me blackstar or kel
 
 
 
-╰
-─
-─
-─
-─
-─
-─
-·
-·
-୨
-
-
-
-
-
-
-
-୧
-·
-·
-─
-─
-─
-─
-─
-─
-╯
+![8b41d3e93ab27772436386bc5d3d29d7](https://github.com/user-attachments/assets/c5b23b75-120f-48aa-9f18-2cf20c59ea00)
 
 
 
