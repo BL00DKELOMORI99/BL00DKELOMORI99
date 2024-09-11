@@ -60,5 +60,7 @@ t
 ‘
 ₎
 ა
+![c79331961a0c6be5ca37e55435d501df](https://github.com/user-attachments/assets/6caaf623-9f62-43d1-a8f9-fe36902a71e6)
 
-![1b6fefcd55b169af06f2a3d69b0c71b0](https://github.com/user-attachments/assets/44843c48-15ee-4fcf-aec6-41f067a73cfa)
+
+
