@@ -1,15 +1,10 @@
 
- ![nega-scott-move-yo-body](https://github.com/user-attachments/assets/089ddac7-0664-4b0f-a63f-058aa56bc027)
 
  ![4f456129762609a5cae9bc8e3cbc14e9](https://github.com/user-attachments/assets/d29ff83a-c103-47bb-98c6-e31cdebf0757)
 ୨
 ୧ wellcome to nega scott acc but is not my real name is nickname blackstar ୨
 ୧
 ![4378dcf6b4f31eb451cb97322a2c6c9d](https://github.com/user-attachments/assets/03b8d999-edb8-4181-8602-c3d98c90ea1d)
-
-
- 
- ![b4a73e5a4566b0c9a8582d8080c9bf48](https://github.com/user-attachments/assets/1aa546e7-80b9-457f-abbd-db23fdec7f19)
 
 ୨
 ୧
