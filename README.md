@@ -4,7 +4,8 @@
 𝜗𝜚remember me in pony town this skin𝜗𝜚
 ![pony-town-nega scott _ Scott pilgrim-trot-blinking-padded-4x](https://github.com/user-attachments/assets/52aec253-ce18-4dc5-b20c-57a642023122) -
 𝜗𝜚she as mad at you as nega wally want you be her gf do you want her or leave her alone make her kill you This killer sily here𝜗𝜚
-![pony-town-NEGA WALLY (SP OC)-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/8080fac8-5ed9-4323-bd4a-ce7006e3dbf2)-
+![pony-town-NEGA WALLY (SP OC)-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/8080fac8-5ed9-4323-bd4a-ce7006e3dbf2)-     ![pony-town-IT THE NEGA WALLY (SP OC TWO)-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/e1497aa6-3208-40e8-9f2c-21629a6736e7) -
+
 
 
  ![4f456129762609a5cae9bc8e3cbc14e9](https://github.com/user-attachments/assets/d29ff83a-c103-47bb-98c6-e31cdebf0757)
