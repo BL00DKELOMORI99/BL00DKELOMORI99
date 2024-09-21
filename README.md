@@ -1,6 +1,6 @@
 
 ![366635055-5f784164-72e5-43d2-897a-6e90fb90bdb5](https://github.com/user-attachments/assets/a768a3c7-59fa-4c20-832c-265230dce624)
-Nega scott-
+-
 
  ![4f456129762609a5cae9bc8e3cbc14e9](https://github.com/user-attachments/assets/d29ff83a-c103-47bb-98c6-e31cdebf0757)
 ୨
