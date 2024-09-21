@@ -1,7 +1,7 @@
 
 ![366635055-5f784164-72e5-43d2-897a-6e90fb90bdb5](https://github.com/user-attachments/assets/a768a3c7-59fa-4c20-832c-265230dce624)
 -
-𝜗𝜚remember me in pony town this skin𝜗𝜚 Wally x nega scott canon𝜗𝜚 ![pony-town-wally kanse (SP OC IS GIRL)-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/99f21a54-0c20-4960-9f62-b1b44630bfff) ‘ ‘ B l o c k I f Y o u W a n t . ‘ ‘ ૮ ₍ ´ ｡ ᵔ ꈊ ᵔ ｡ ‘ ₎ ა
+𝜗𝜚remember me in pony town this skin𝜗𝜚 my south park girl oc Wally x nega scott canon𝜗𝜚 ![pony-town-wally kanse (SP OC IS GIRL)-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/99f21a54-0c20-4960-9f62-b1b44630bfff) ‘ ‘ B l o c k I f Y o u W a n t . ‘ ‘ ૮ ₍ ´ ｡ ᵔ ꈊ ᵔ ｡ ‘ ₎ ა
 
 ![pony-town-nega scott _ Scott pilgrim-trot-blinking-padded-4x](https://github.com/user-attachments/assets/52aec253-ce18-4dc5-b20c-57a642023122) -
 𝜗𝜚she as mad at you as nega wally want you be her gf do you want her or leave her alone make her kill you This killer sily here𝜗𝜚
