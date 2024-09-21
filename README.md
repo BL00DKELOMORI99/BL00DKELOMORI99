@@ -1,8 +1,11 @@
 
  ![nega-scott-move-yo-body](https://github.com/user-attachments/assets/089ddac7-0664-4b0f-a63f-058aa56bc027)
 
- 
- ![https://static.wikia.nocookie.net/scottpilgrim/images/e/e8/Nega-Scott-Boss.png/revision/latest?cb=20100910210403]
+ ![4f456129762609a5cae9bc8e3cbc14e9](https://github.com/user-attachments/assets/d29ff83a-c103-47bb-98c6-e31cdebf0757)
+![4e8685922fc4d835f7ba8623c969b8c2](https://github.com/user-attachments/assets/5c7a8eae-69a4-40db-995d-b4f42c22543c)
+![4378dcf6b4f31eb451cb97322a2c6c9d](https://github.com/user-attachments/assets/03b8d999-edb8-4181-8602-c3d98c90ea1d)
+
+
  
  ![b4a73e5a4566b0c9a8582d8080c9bf48](https://github.com/user-attachments/assets/1aa546e7-80b9-457f-abbd-db23fdec7f19)
 
