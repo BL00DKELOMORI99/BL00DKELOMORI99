@@ -10,3 +10,5 @@
 🍿: what i watch show/anime/movie (i watch soul eater and scott pilgrim take off)
 🌟/🚫: i love being nice i dont like adlut beacuse is disgusting
 🎉: THANK YOU 40 follower thank you SEE YOU HAVE GOOD DAYS NO ADLUT JUST ONLY MINOR
+
+![ba3c78c0a04da341461cd18eca2a0c36](https://github.com/user-attachments/assets/0fea3461-256b-4519-8345-12e9e8e5197d)
