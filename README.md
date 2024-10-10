@@ -1,6 +1,5 @@
 ![rrygqa](https://github.com/user-attachments/assets/68f3a552-d328-4129-aba6-1926fbac5216)
-![IMG-7035](https://github.com/user-attachments/assets/298414e1-48f7-4b6b-b247-2b1fd837b290)
-^^^^{hello wellcome to my account pls become kind no unfollow me or rude pls be nice}^^^
+![4lztpr](https://github.com/user-attachments/assets/9433b0ee-b461-4fac-8ba4-7af53f4383fe)
 ![kv3o5r](https://github.com/user-attachments/assets/16617fc3-bbbb-40a1-b84f-d470dac3a6a7)
 ![4fdd92fe7fc2b1d450af2b799ff7ed42](https://github.com/user-attachments/assets/3dc5d779-2e15-480c-ab9d-f1600977d8cc)
 ![qvvawu](https://github.com/user-attachments/assets/6ba51867-d795-48d3-b9d9-4b915f35737c)
