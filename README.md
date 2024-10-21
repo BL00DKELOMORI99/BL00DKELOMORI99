@@ -1,8 +1,7 @@
-![Untitled1066-20240902100058](https://github.com/user-attachments/assets/2934cdf2-23a0-44e4-97b7-df59433752d2)
-![7ed7744e1211caff11![77671f31f8181b98bc59ed61f585a61c](https://github.com/user-attachments/assets/df22bbcd-cc6a-4a52-a42d-03a770ef6d72)
-8950f654db59f8](https://github.com/user-attachments/assets/e6e7f1bd-3d30-436e-b27a-9d43590a0db6)
-![3gtno4](https://github.com/user-attachments/assets/feeea2e0-1292-48f4-85b3-ab6c9675d8c3)![3gtno4](https://github.com/user-attachments/assets/3d346d97-da7c-42ad-9e36-4f22ec13f5dc)
-kel.. ‎ ‎  ‎ ‎ her/she . age/11
+![tumblr_3926f4319797752a722bb5580f9af508_cb1b1ff7_1280](https://github.com/user-attachments/assets/150f9eb3-031f-4041-8311-18dd990269dd)
+![Untitled1994-20240311233028](https://github.com/user-attachments/assets/bff89bb4-8ff0-4404-bad9-db6625a0f562)
+![tumblr_bc1a351686a50a2f26c2143446f33913_bf972c5a_1280](https://github.com/user-attachments/assets/ac30867a-9d85-42d7-ad6e-9a73b48c42d0)
+![tumblr_d1f25b873cb0b8b684c99ca023d72583_190434e6_1280](https://github.com/user-attachments/assets/2643e99e-0577-43ca-8f7d-03806158da7d)
+![tumblr_81843ab10e9eaaa7daff2d06dadbdcdf_ce98de78_1280](https://github.com/user-attachments/assets/ccf3dfa8-f06e-45bc-8cba-c8901d79eae6)
+kel.. ‎ ‎  ‎ ‎ her/she . age/11 i love scott pilgrim...
 genshin... ‎ ‎ omori ![7j4tg5](https://github.com/user-attachments/assets/cedf2520-a579-4dd5-bf36-b4d23d30f6e2)
-![Untitled1066-20240902103726](https://github.com/user-attachments/assets/573c6e6b-1709-40d6-863c-d19828c59389)
-![9sxjxo](https://github.com/user-attachments/assets/7dbc9a7a-bafb-4dcf-9a4f-9f9a05a6e474)
