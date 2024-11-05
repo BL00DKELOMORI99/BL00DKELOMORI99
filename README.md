@@ -2,7 +2,8 @@
 ![f2bqhx](https://github.com/user-attachments/assets/48657f80-0d0d-4052-910f-0e134ee25f4c)
 
 ![natsuki](https://github.com/user-attachments/assets/2baf64a4-e0d4-473f-8c8c-4effeb11a0a0)
-![tetoicon](https://github.com/user-attachments/assets/a213f0f3-c6ad-4956-b421-28825549bfda)
+![just-monika-hi](https://github.com/user-attachments/assets/9405ce81-50aa-436c-8de8-49f2403c40e5)
+
 
 
 ![Untitled512-20220917094616](https://github.com/user-attachments/assets/8443cd70-e985-4fd5-80c2-c08a74de91ba)
