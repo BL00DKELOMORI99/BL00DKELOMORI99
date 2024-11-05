@@ -1,13 +1,12 @@
-![Untitled1007_20240503192511](https://github.com/user-attachments/assets/baa3b3f1-768f-4ace-8fc7-c28e346637ab)
-![n4vd38](https://github.com/user-attachments/assets/f810bbd1-539c-40ab-a70f-f00a530bbac9)
-![oq1tho](https://github.com/user-attachments/assets/3c441c84-1e94-459e-b6dc-1a08cf887c35)
-hello happy halloween days i love scott pilgrim and genshin impact omori homestuck >_< honkai star rail and  zzz is my fav game happy halloween![qh58yt](https://github.com/user-attachments/assets/96eea7d8-275d-4b5b-9779-8d223c137935)
-┣▇▇▇═─![77fazp](https://github.com/user-attachments/assets/3c6fb997-9586-4789-ab03-8f6aada4a455)
-she/her ═╬![IMG-9463](https://github.com/user-attachments/assets/a5dac770-b8ce-453c-9c2d-a37bfa390894)
-![15c1c548](https://github.com/user-attachments/assets/538f2c64-922a-4b93-92ba-5e44574d5ccd)
-![Untitled1008_20240503223113](https://github.com/user-attachments/assets/512da647-db15-45d1-a08e-38fd8d873b97)
-![koopzi](https://github.com/user-attachments/assets/68a0f932-6912-42cd-ac9a-9e35c7f03359)
-![Untitled1007_20240503192626](https://github.com/user-attachments/assets/7c2119c1-d7d7-4593-88c1-76036f6ad098)
-kel.. ‎ ‎  ‎ ‎ her/she . age/11 i love scott pilgrim...
-genshin... ‎ ‎ omori ![7j4tg5](https://github.com/user-attachments/assets/cedf2520-a579-4dd5-bf36-b4d23d30f6e2)
-![Untitled549-20240919211848](https://github.com/user-attachments/assets/869a1b39-4641-4c45-a220-ced9ec182ae4)
+
+![f2bqhx](https://github.com/user-attachments/assets/48657f80-0d0d-4052-910f-0e134ee25f4c)
+
+![natsuki](https://github.com/user-attachments/assets/2baf64a4-e0d4-473f-8c8c-4effeb11a0a0)
+
+
+![Untitled512-20220917094616](https://github.com/user-attachments/assets/8443cd70-e985-4fd5-80c2-c08a74de91ba)
+![7rx945](https://github.com/user-attachments/assets/de8c82a1-faf1-4a67-9b34-dc4a8d9d1a4c)
+![Untitled256-20231118181944](https://github.com/user-attachments/assets/0773a439-d4c7-49e0-8dba-1e2e3347357e)
+hello happy halloween days i love scott pilgrim and genshin impact omori homestuck >_< honkai star rail and  zzz is my fav game I love ddlc and soul eater 
+she/her ┣▇▇▇═─
+![y0q6wg](https://github.com/user-attachments/assets/2fa0206e-f17f-4109-b8e0-b2b9e2a160e5)
