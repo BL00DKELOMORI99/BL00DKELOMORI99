@@ -1,4 +1,6 @@
 ![f2bqhx](https://github.com/user-attachments/assets/48657f80-0d0d-4052-910f-0e134ee25f4c)
+Me and @BombNerd
+![Screenshot 2024-11-06 5 02 10 PM](https://github.com/user-attachments/assets/9828fdea-e777-4eac-bd0c-2f7246a34792)
 If you see me in pony town mualani  or nega scott skin pony town....
 ![natsuki](https://github.com/user-attachments/assets/2baf64a4-e0d4-473f-8c8c-4effeb11a0a0)
 ![just-monika-hi](https://github.com/user-attachments/assets/9405ce81-50aa-436c-8de8-49f2403c40e5)
