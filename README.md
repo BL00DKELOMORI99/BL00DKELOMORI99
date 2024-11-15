@@ -1,18 +1,7 @@
-![f2bqhx](https://github.com/user-attachments/assets/48657f80-0d0d-4052-910f-0e134ee25f4c)
 
-![dd00c221de591b46045074ace54fd56f](https://github.com/user-attachments/assets/ee2b6893-6b04-48cb-98d9-6080f7501de9)
+![tumblr_e7098e42e5c806ea995e316b94ebcc1c_144804a4_1280](https://github.com/user-attachments/assets/d98b2afd-87c0-4e72-b262-5bbe80c844f3)
 
-
-![2a82860eecc44469be2c1a4bf7bf884e](https://github.com/user-attachments/assets/7061e715-f1e7-4a87-9342-dc72a85ff6c6)
-this my two edit not yours
-
-
-Me and @BombNerd
-![Screenshot 2024-11-06 5 02 10 PM](https://github.com/user-attachments/assets/9828fdea-e777-4eac-bd0c-2f7246a34792)
-If you see me in pony town mualani  or nega scott skin pony town....
-![natsuki](https://github.com/user-attachments/assets/2baf64a4-e0d4-473f-8c8c-4effeb11a0a0)
-![just-monika-hi](https://github.com/user-attachments/assets/9405ce81-50aa-436c-8de8-49f2403c40e5)
-
+![721e105528146a46477cf33ed8f87c7b](https://github.com/user-attachments/assets/6b5b77fd-9f1b-46c7-8739-e8d2bcc8e8f1)
 
 
 ![Untitled512-20220917094616](https://github.com/user-attachments/assets/8443cd70-e985-4fd5-80c2-c08a74de91ba)
@@ -21,4 +10,4 @@ If you see me in pony town mualani  or nega scott skin pony town....
 hello happy halloween days i love scott pilgrim and genshin impact omori homestuck >_< honkai star rail and  zzz is my fav game I love ddlc and soul eater 
 she/her ┣▇▇▇═─
 
-![y0q6wg](https://github.com/user-attachments/assets/2fa0206e-f17f-4109-b8e0-b2b9e2a160e5)
+![tumblr_e7098e42e5c806ea995e316b94ebcc1c_144804a4_1280](https://github.com/user-attachments/assets/61e62ddb-0139-4f07-8e4e-6a5fd4f33b47)
