@@ -1,5 +1,7 @@
 1.  if you see my skin scott pilgrim and blackstar and venti if i wear skin you go link follow my account as thank you if u know me oka?
 
+1. ![Screenshot 2024-11-18 4 32 39 PM](https://github.com/user-attachments/assets/fb5f8325-6132-4d63-a907-445aa5612a3e)
+
 
 2.![Screenshot 2024-11-18 4 41 41 PM](https://github.com/user-attachments/assets/44448fca-121b-4ace-918c-37d872d1e8cd)
 
