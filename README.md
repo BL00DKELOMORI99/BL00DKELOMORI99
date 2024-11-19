@@ -1,5 +1,11 @@
+1.  if you see my skin scott pilgrim and blackstar and venti if i wear skin you go link follow my account as thank you if u know me oka?
 
-![b8b3ddeb4cd4ff7c0586ae99361e16a2](https://github.com/user-attachments/assets/4241dbc6-50ef-4683-8df7-84fd4889e6f9)
+
+2.![Screenshot 2024-11-18 4 41 41 PM](https://github.com/user-attachments/assets/44448fca-121b-4ace-918c-37d872d1e8cd)
+
+3. ![Screenshot 2024-11-18 4 43 09 PM](https://github.com/user-attachments/assets/b1e2d62f-61d1-4da9-b01a-9e9084802b2f)
+
+(PONY TOWN MAP WHAT YOU GOING TO FIND ME SOME WHERE)
 
 ![Untitled512-20220917094616](https://github.com/user-attachments/assets/8443cd70-e985-4fd5-80c2-c08a74de91ba)
 ![7rx945](https://github.com/user-attachments/assets/de8c82a1-faf1-4a67-9b34-dc4a8d9d1a4c)
