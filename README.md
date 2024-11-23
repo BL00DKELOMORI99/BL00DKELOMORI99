@@ -1,6 +1,4 @@
-FREE PONY TOWN SKIN CHECK RIGHT NOW (NOT AD NEWS) HERE LINK CLICK AND LINK NAME https://docs.google.com/document/d/19k6fzXC_zon0v7_FWWnCQsxTaMkpR6kuBxymaqkCOdg/edit?tab=t.0#heading=h.tdqcecmt7m39
-![104489b1f6dca2edd6bc031da2e424f8](https://github.com/user-attachments/assets/a9642883-5622-478b-927f-46fb44d32280)
-
+https://bl00dkelomori99.itch.io/
 1.  if you see my skin scott pilgrim and blackstar and venti if i wear skin you go link follow my account as thank you if u know me oka?
 
 1. ![Screenshot 2024-11-18 4 32 39 PM](https://github.com/user-attachments/assets/fb5f8325-6132-4d63-a907-445aa5612a3e)
