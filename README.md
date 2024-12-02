@@ -2,7 +2,12 @@
 
 ![389632949-2e13f08d-1d97-48fe-bae9-afb66f2e29f5](https://github.com/user-attachments/assets/fb871bcb-d963-4af9-8082-6760fcea350f)
 
-*******About me! ┣▇▇▇═─ ⟡*******
+*******About me! ┣▇▇▇═─⟡******* 
+
+![Untitled512-2022![tumblr_cfe897c874ffc4ada920b2f945a15cea_4744b603_250](https://github.com/user-attachments/assets/d7f01379-89c6-46c1-bbda-cb8d447a26a9)
+0917094616](https://github.com/user-attachments/assets/8443cd70-e985-4fd5-80c2-c08a74de91ba)
+![7rx945](https://github.com/user-attachments/assets/de8c82a1-faf1-4a67-9b34-dc4a8d9d1a4c)
+![Untitled256-20231118181944](https://github.com/user-attachments/assets/0773a439-d4c7-49e0-8dba-1e2e3347357e)
 
 *****she/her them/him  scott/kel  pilgrim/blackstar  Negascott/soul⟡ Age:11-10*****
 
