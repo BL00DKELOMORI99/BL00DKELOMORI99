@@ -4,6 +4,9 @@
 
 *******About me! ┣▇▇▇═─⟡******* 
 
+***Online: i am here in pony town if you see me as scott pilgrin and more as walk to you or walk around in map dont be shy is okay you can say hi***
+***Away: i am afk and not going play pony town anymore because i have go stupid school***
+***Busy: NOt here***
 ![Untitled512-2022![tumblr_cfe897c874ffc4ada920b2f945a15cea_4744b603_250](https://github.com/user-attachments/assets/d7f01379-89c6-46c1-bbda-cb8d447a26a9)
 0917094616](https://github.com/user-attachments/assets/8443cd70-e985-4fd5-80c2-c08a74de91ba)
 ![7rx945](https://github.com/user-attachments/assets/de8c82a1-faf1-4a67-9b34-dc4a8d9d1a4c)
