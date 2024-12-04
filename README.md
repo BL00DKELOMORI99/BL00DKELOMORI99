@@ -1,3 +1,12 @@
+***UPDATE YOU SEE THIS NEW NOTE (IF YOU DONT FIND ME WHICH WHO I AM ITS ME IN SAFE SERVER**
+
+![Screenshot 2024-12-04 5 00 39 PM](https://github.com/user-attachments/assets/a7f98d2c-019a-447a-bd1d-fb899ab84ba1)
+
+![Screenshot 2024-12-04 5 30 30 PM](https://github.com/user-attachments/assets/5d5839d7-8ab7-4a99-8e16-bc693d73ab5a)
+
+![Screenshot 2024-12-04 5 28 16 PM](https://github.com/user-attachments/assets/8e6427ef-6a5e-4ba8-ac40-3539cf447f3c)
+
+
 ![07941c4c36bd2ee4f21207b16dfeaa57](https://github.com/user-attachments/assets/f3477a39-1df0-4a5e-90ad-fd20928a7a71)
 
 ![389632949-2e13f08d-1d97-48fe-bae9-afb66f2e29f5](https://github.com/user-attachments/assets/fb871bcb-d963-4af9-8082-6760fcea350f)
