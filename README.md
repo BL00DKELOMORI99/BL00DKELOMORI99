@@ -1,7 +1,7 @@
 
 ![i5w4e1](https://github.com/user-attachments/assets/1257fc7b-c38d-4187-bcd0-aadc3a303100)
 ![oel8wu](https://github.com/user-attachments/assets/f63bd270-daf5-4502-920d-7b50c1bb526f)
-![b5d66ec78f3184a507c880ccea5ea29d](https://github.com/user-attachments/assets/e43cff09-c5bb-4944-ac97-c7925cc2d991)
+
 ![22d62ddfe76b9176c2998d0108488a04](https://github.com/user-attachments/assets/dde669df-ee68-49d4-9e53-8b0d40c4d908)
 
                             •┈୨♡୧┈•
