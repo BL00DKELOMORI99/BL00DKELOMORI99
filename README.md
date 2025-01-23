@@ -1,10 +1,25 @@
 
-![48b02c8da5a29cac5f6168e5f371ffd7](https://github.com/user-attachments/assets/f06a8825-14bc-4980-8c37-0fa4d8b04ff7)
+ ![25499e11ed89be0ea86eb63f91f16e54](https://github.com/user-attachments/assets/940b82ca-2027-4d6d-9bab-9eaa65803d23)
+
+ 
+ 
+ hi hi ᓚ₍ ^. .^₎
+
+i make cozy gaming vids 🧸☕🤍
+
+/) /) ~ ┏━━━━━━━━━┓
+( •-• ) ~ ♡ have a great day !! ♡
+/づづ ~ ┗━━━━━━━━━┛
+
+(\ (\
+(„• ֊ •„)
+━𝕆━𝕆━━━━━━━━━
 
                             •┈୨♡୧┈•
                              am 11 in 2025 yes i 10 in 2024 
                             i turn 11 in oct 7 24 year
                             i will turn 12 in oct 7 25 
+                 
                             <3 fandom
                             squid game csm genshin impact
                             souleater southpark
