@@ -1,4 +1,7 @@
 
+![7k37cw](https://github.com/user-attachments/assets/442c147c-05a4-48e1-8c8c-6b4679ed4ab7)
+
+
 ![IMG-6758](https://github.com/user-attachments/assets/156322f5-06d2-474e-b3aa-1df85a1c1c9c)
 ![IMG-6793](https://github.com/user-attachments/assets/98a36845-8835-4b6f-a446-69c1734c8248)
 
@@ -22,3 +25,4 @@ MY FLAG
 **blackstar discord username: blackstar_souleatblood73389**
 ![006e1b38b78686c0c451ccb2d0cd6653](https://github.com/user-attachments/assets/1358822b-8825-4e2f-a82b-2147ee905687)
 
+![xwr4wn](https://github.com/user-attachments/assets/c694069b-7294-4ca5-83af-a8e912a3aa93)
